@@ -4,4 +4,4 @@
 - TAs are nice
 - Class is not at 7:30 am 
 
-![![image](https://github.com/user-attachments/assets/c5ca61d6-d7fa-43a4-8a2d-d953018bf4c9)](src)
+![image](https://github.com/user-attachments/assets/0f3f9b03-68d6-4e23-8c0b-a19c818a0ba9)
