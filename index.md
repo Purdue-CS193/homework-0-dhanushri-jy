@@ -3,3 +3,5 @@
 - It's relatively low time commitment with a lot of valuable info
 - TAs are nice
 - Class is not at 7:30 am 
+
+!https://lindsbees.threadless.com/designs/cat-doodle/home/fine-art-print(src)
