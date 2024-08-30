@@ -4,4 +4,4 @@
 - TAs are nice
 - Class is not at 7:30 am 
 
-!https://lindsbees.threadless.com/designs/cat-doodle/home/fine-art-print(src)
+![![image](https://github.com/user-attachments/assets/c5ca61d6-d7fa-43a4-8a2d-d953018bf4c9)](src)
